@@ -1,0 +1,1 @@
+# Trend_plus_Ecolos_plus_AI_bootcamp
